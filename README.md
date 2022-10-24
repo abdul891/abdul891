@@ -1,4 +1,4 @@
-### Hi there, I'm Abdul👦,
+### Hi there, I'm Abdul 👋,
 ![](https://komarev.com/ghpvc/?username=abdul891&style=flat-square)
 
 **Languages:**  
